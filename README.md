@@ -1,1 +1,0 @@
-https://fuadsbriochefrenchtoastrecipe.netlify.app
